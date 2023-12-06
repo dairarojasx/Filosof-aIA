@@ -1,0 +1,2 @@
+# Filosof-aIA
+Taller 
